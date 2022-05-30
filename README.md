@@ -46,3 +46,4 @@
 23. You get what you focus on. So focus on what you want. 
 
 ….to be continued.
+Denilzo Baltazar
